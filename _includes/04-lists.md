@@ -1,1 +1,8 @@
-Replace this with a list of your favorite things.
+- European football
+- Anime 
+- Books by James Patterson
+- Comic videos on youtube 
+- Algorithms on codewars
+- Action or rpg games on pc
+- Dream league on mobile
+- Ladies with slim waist and nicely shaped bum and boobies!
